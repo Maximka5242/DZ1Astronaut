@@ -1,0 +1,21 @@
+Date: 02.01
+02.01.2025 — Thursday
+02.01.2026 — Friday
+02.01.2027 — Saturday
+02.01.2028 — Sunday
+02.01.2029 — Tuesday
+02.01.2030 — Wednesday
+02.01.2031 — Thursday
+02.01.2032 — Friday
+02.01.2033 — Sunday
+02.01.2034 — Monday
+02.01.2035 — Tuesday
+02.01.2036 — Wednesday
+02.01.2037 — Friday
+02.01.2038 — Saturday
+02.01.2039 — Sunday
+02.01.2040 — Monday
+02.01.2041 — Wednesday
+02.01.2042 — Thursday
+02.01.2043 — Friday
+02.01.2044 — Saturday
